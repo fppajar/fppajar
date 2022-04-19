@@ -1,0 +1,1 @@
+Hi, I'm Francis Pajar and I'm interested in programming and I'm still learning to improve my skill. All the projects that I released here are the results of my knowledge that I learned while studying about some programming stuff.
